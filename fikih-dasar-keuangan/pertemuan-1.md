@@ -44,4 +44,6 @@ Manusia terbagi menjadi tiga macam:
 `Rosulullah SAW bersabda, "Orang manusia akan menjadi berdosa ketika manusia itu menyia-nyiakan orang yang wajib ia nafkahi".`
 
 2. Manusia yang memberikan nafkah kepada keluarga nya tetapi hanya karena adat kebiasaan (tanpa niatan solehah): hanya sekedar memberikan nafkah karena sadar kewajiban seorang suami, tanpa niatan solehah. orang seperti ini sah nafkah nya akan tetapi tidak ada pahala dari sisi Allah SWT.
-3. Manusia yang memebrikan nafkah kepada keluarga nya disertai dengan mengharap Ridho Allah SWT
+3. Manusia yang memeberikan nafkah kepada keluarga nya disertai dengan mengharap Ridho Allah SWT.
+
+
